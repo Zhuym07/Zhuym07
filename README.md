@@ -15,5 +15,5 @@
 
 ## 发电
 
-[<img src="https://s2.loli.net/2022/04/15/mOGkutS8F3WlKie.png" alt="support me on afd-发电紫.png" style="zoom:30%;" />](https://afdian.net/@Zhuym)
+[<img src="https://s2.loli.net/2022/04/15/mOGkutS8F3WlKie.png" alt="support me on afd-发电紫.png" style="zoom:25%;" />](https://afdian.net/@Zhuym)
 
